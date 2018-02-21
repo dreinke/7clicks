@@ -1,1 +1,1 @@
-# 7clicks
+# 7 Cliques para as estrelas
